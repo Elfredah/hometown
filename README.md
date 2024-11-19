@@ -1,0 +1,1 @@
+This page is about my hometown, Okrika, a rich and diverse culture of the Niger Delta people. I put my prompt engineering skills here as well to get some codes and check for the error of my code using chatgpt.
